@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+❤️ I love dogs
+1. I like cooking
+* I love investing!
+🔮 woohoo! 🎉
